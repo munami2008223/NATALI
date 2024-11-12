@@ -1,6 +1,7 @@
 ## Немного о себе:
 
-![Кипр](https://drive.google.com/file/d/1O2umau4ioDlmugnOliIKzcaPZKR4lZ8K/view?usp=sharing)
+![IMG_20180803_154859](https://github.com/user-attachments/assets/cf088d44-9b8d-467f-8e73-cc2430292b79)
+
 
 Меня зовут <ins>***Наталья Чупина***
 
